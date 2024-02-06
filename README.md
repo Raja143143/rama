@@ -1,4 +1,4 @@
-# ramasomu rajasekhar reddyt
+# Somu Rajasekhar Reddy
 
 
 
